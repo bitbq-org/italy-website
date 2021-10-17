@@ -18,4 +18,4 @@ Grazie alla sua costante presenza nei media e al successo impressionante, BitBQ.
 
 Sono un membro di BitBQ.org solo da 17 giorni. Ma la mia vita è già completamente cambiata! Non solo ho guadagnato i miei primi 10.000, ma ho anche incontrato alcune persone incredibili durante il processo. Grazie ancora ai due fondatori per aver reso possibile tutto questo a persone come me!
 
-*Di Dennis Wiedmann*, 17.10.2021
+*Di Dennis Wiedmann*, 10.10.2021 15:34
